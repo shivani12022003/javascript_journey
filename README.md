@@ -1,0 +1,1 @@
+🌟 Embarking on my JavaScript journey! Diving into code, learning, and building exciting projects along the way.
